@@ -1,1 +1,0 @@
-# fkgforfikriii.github.io
